@@ -1,2 +1,3 @@
 # hello-world
-This is my first GitHub
+This is my first GitHub. I am a 19 year old male that just wants to make the world a better place..... 
+......but first needs to make himslef a better person i guess. 
